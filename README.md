@@ -1,0 +1,1 @@
+Beliau Ini Kocak Geming
